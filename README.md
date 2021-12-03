@@ -1,3 +1,3 @@
-Hi, I’m @s-wilkins-jci
+Hi, I’m Sam Wilkins!
 
 Software Engineering Intern @ JCI Sunbury
